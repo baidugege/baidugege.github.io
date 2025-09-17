@@ -1,1 +1,1 @@
-# baidugege.github.io
+# [baidugege.github.io](https://hoo.be/moguys)
